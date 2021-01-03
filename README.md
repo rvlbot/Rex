@@ -1,0 +1,2 @@
+# Rex
+WELCOME TO MY GITHUB EA
